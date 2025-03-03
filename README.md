@@ -1,0 +1,1 @@
+# Bazarliq.az
